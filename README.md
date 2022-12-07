@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @naldayouz
+- 👋 Hi, I’m @naldayouz. I'm a hobby developer so not good at developing :)
 - 👀 I’m interested in NFT, Blockchain, Money and Human beings
 - 🌱 I’m currently learning Yoga, Phychology, and Japanese
 - 💞️ I’m looking to collaborate on creating an amazing service!
